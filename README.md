@@ -10,4 +10,4 @@ also may go nonverbal sometimes cuz im stupid and awkward and dont know what to 
 
 ong i love giving people crowns yall r so creative and ur styles r so yummy godshshshshs <333
 
-more info in my [rentry](https://rentry.co/rinukute-ponytown)
+more info in my [pony town rentry](https://rentry.co/rinukute-ponytown)
