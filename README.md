@@ -1,4 +1,4 @@
-idk im weird and shit .. ,,, o_O hey plz dont assume that im sane or some shit cuz im most definitely not..
+idk im weird .. ,,, o_O hey plz dont assume that im sane or some shit cuz im most definitely not..
 
 ong i hate people who insult other people's skins out of nowhere .. pls dni if u're like that
 
