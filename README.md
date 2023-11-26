@@ -8,4 +8,6 @@ i also have different styles and i occasinally do style tests .. literally have 
 
 also may go nonverbal sometimes cuz im stupid and awkward and dont know what to say ..
 
+ong i love giving people crowns yall r so creative and ur styles r so yummy godshshshshs <333
+
 more info in my [rentry](https://rentry.co/rinukute-ponytown)
