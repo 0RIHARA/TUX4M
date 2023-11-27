@@ -13,4 +13,6 @@ may go nonverbal sometimes cuz im stupid and awkward and dont know what to say .
 
 ong i love giving people crowns yall r so creative and ur styles r so yummy godshshshshs <333
 
+ILL ADMIT i am a sensitive baby so pleaseeee dont bully or be rude to me owo >///<
+
 more info in my [pony town rentry](https://rentry.co/rinukute-ponytown)
