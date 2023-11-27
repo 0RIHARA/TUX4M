@@ -9,7 +9,7 @@ plzzzz leave a message on my guestbook i will appreciate it very much and i alwa
 
 i also have different styles and i occasinally do style tests .. literally have a 7th style test rn so LOL i cant stay with just one style >:P
 
-also may go nonverbal sometimes cuz im stupid and awkward and dont know what to say ..
+may go nonverbal sometimes cuz im stupid and awkward and dont know what to say ..
 
 ong i love giving people crowns yall r so creative and ur styles r so yummy godshshshshs <333
 
