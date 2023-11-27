@@ -1,3 +1,4 @@
+![](https://cdn.discordapp.com/attachments/886288865156005918/1178593546140389426/Untitled357_20231119190819.png?ex=6576b5c6&is=656440c6&hm=5038359b067509ec8a2a2b7989bf9a064dfe9d8ad19769631178737f6a15ee66&)
 idk im weird .. ,,, o_O hey plz dont assume that im sane or some shit cuz im most definitely not..
 
 ong i hate people who insult other people's skins out of nowhere .. pls dni if u're like that
