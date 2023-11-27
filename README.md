@@ -10,6 +10,7 @@ plzzzz leave a message on my guestbook i will appreciate it very much and i alwa
 i also have different styles and i occasinally do style tests .. literally have a 8th style test rn so LOL i cant stay with just one style >:P
 
 ILL ADMIT i am a sensitive baby so pleaseeee dont bully or be rude to me owo >///< even as a joke .. only my friends can do that :P
+
 [MORE PT INFO HERE](https://rentry.co/rinukute-ponytown)
 
 ***
