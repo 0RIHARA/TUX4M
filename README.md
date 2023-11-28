@@ -11,6 +11,8 @@ i also have different styles and i occasinally do style tests .. literally have 
 
 ILL ADMIT i am a sensitive baby so pleaseeee dont bully or be rude to me owo >///< even as a joke .. only my friends can do that :P
 
+was kind of hesitant to share my age but im 14 years old so plz dont act inappropriate towards me :P
+
 [MORE PT INFO HERE](https://rentry.co/rinukute-ponytown)
 
 ***
