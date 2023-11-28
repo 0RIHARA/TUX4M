@@ -11,6 +11,8 @@ i also have different styles and i occasinally do style tests .. literally have 
 
 ILL ADMIT i am a sensitive baby so pleaseeee dont bully or be rude to me owo >///< even as a joke .. only my friends can do that :P
 
+HEAVY DNI FOR PEOPLE WHO FUCKING CRITICIZE OTHER'S SKINS OUT OF NOWHRE. LIKE i didnt ASK get the fuck out. you just make me wanna not use that skin anymore. fuck you
+
 [MORE PT INFO HERE](https://rentry.co/rinukute-ponytown)
 
 ***
