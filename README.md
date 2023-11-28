@@ -7,6 +7,8 @@ i use different personalities for different people so ya um >_< even so i still 
 
 plzzzz leave a message on my guestbook i will appreciate it very much and i always reply eheheehehehe :333333
 
+erm im horrible at continuing convos and i may need to think for a little bit abt what to respond so keep that in mind
+
 i also have different styles and i occasinally do style tests .. literally have a 8th style test rn so LOL i cant stay with just one style >:P
 
 ILL ADMIT i am a sensitive baby so pleaseeee dont bully or be rude to me owo >///< even as a joke .. only my friends can do that :P
