@@ -1,6 +1,6 @@
 ![](https://cdn.discordapp.com/attachments/886288865156005918/1178593546140389426/Untitled357_20231119190819.png?ex=6576b5c6&is=656440c6&hm=5038359b067509ec8a2a2b7989bf9a064dfe9d8ad19769631178737f6a15ee66&)
 
-i am very silli ....
+i am very silli .... ALSO VERY SINCERELY SORRY IF I IGNORE OR DONT RESPOND TO UR WHISPER IM SORRRYYYY </33 
 
 [PONY TOWN INFO HERE](https://rentry.co/rinukute-ponytown) . constantly changing it so LOL if u see mistakes pls dont mind it and never bring it up cuz MEIN GOTT its embarassing
 
