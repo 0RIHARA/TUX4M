@@ -6,7 +6,7 @@ i am very silli .... ALSO VERY SINCERELY SORRY IF I IGNORE OR DONT RESPOND TO UR
 
 [PONY TOWN INFO HERE](https://rentry.co/rinukute-ponytown) . constantly changing it so LOL if u see mistakes pls dont mind it and never bring it up cuz MEIN GOTT its embarassing
 
-**lovely people** - Kiyo, Flowa, Pyxle, Yoosu, Ana, Whisp, Moon, Hina, Van
+**lovely people** - Kiyo, Flowa, Pyxle, Yoosu, Ana, Whisp, Moon, Hina, Van, Miyo
 
 `^^ sincerely sorry if you are not here !! i still appreciate you alot though !! :3`
 
