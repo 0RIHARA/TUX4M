@@ -4,7 +4,7 @@
 
 i am very silli .... ALSO VERY SINCERELY SORRY IF I IGNORE OR DONT RESPOND TO UR WHISPER IM SORRRYYYY </33 
 
-[PONY TOWN INFO HERE](https://rentry.co/rinukute-ponytown) . currently in wip and remake status so its kinda unserious rn.
+[PONY TOWN INFO HERE](https://rentry.co/sillyhorsiegame) . currently in wip and remake status so its kinda unserious rn.
 
 **lovely people** - Kiyo, Flowa, Pyxle, Yoosu/Ardawyn, Ana, Whisp, Moon, Hina, Van, Miyo/Skibidi-kun
 
