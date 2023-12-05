@@ -6,7 +6,7 @@ i am very silli .... ALSO VERY SINCERELY SORRY IF I IGNORE OR DONT RESPOND TO UR
 
 [PONY TOWN INFO HERE](https://rentry.co/sillyhorsiegame) . currently in wip and remake status so its kinda unserious rn.
 
-**lovely people** - Kiyo, Flowa, Pyxle, Yoosu/Ardawyn, Ana, Whisp, Moon, Hina, Van, Miyo/Skibidi-kun
+**lovely people** - Kiyo, Joons/Flowa, Pyxle, Yoosu/Ardawyn, Ana, Whisp, Moon, Hina, Van, Miyo/Skibidi-kun
 
 `^^ anyone not here r still very much appreciated <3`
 
