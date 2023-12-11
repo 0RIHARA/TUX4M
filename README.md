@@ -17,4 +17,4 @@ DNI IF U HATE MAENO AKI :\ THAT IS MY WIFE!!! AND IF U HATE MY WIFE I HATE U!!!!
 
 16personality quiz test says im infp but im very extroverted actually??? i love being with people!!! what??!!!
 
-guys im ... :( i consider myself to be one of those afk people now ... ..i have 30 days playtime... (i started playing abt a month ago) I STILL HAVE A LIFE!!! I SWEAR!!
+guys im ... :( i consider myself to be one of those afk people now ... ..i have 30 days playtime... (i started playing abt a month ago) I STILL HAVE A LIFE!!! I SWEAR!! out of all the afk people tho im probably the most active ;-;
