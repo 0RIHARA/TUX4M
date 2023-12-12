@@ -3,7 +3,7 @@
 
 im friendly i think ... w2i when im busy or away.. i sincerely apologize if i dont respond to ur whisper.. i dont mean toooooo....
 
-[PONY TOWN INFO HERE](https://rentry.co/sillyhorsiegame) . still wip ^_^"
+[PONY TOWN INFO HERE](https://rentry.co/sillyhorsiegame) . still wip ... im pathetic
 
 **lovely people** - Kiyo, Joons/Flowa, Pyxle, Yoosu/Ardawyn, Ana, Whisp, Moon, Hina, Van, Miyo, Vas, Fei
 
