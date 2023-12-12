@@ -1,5 +1,4 @@
 # woah
-![](https://cdn.discordapp.com/attachments/886288865156005918/1183771416294858853/Untitled399_20231211220425.png?ex=65898c0b&is=6577170b&hm=9f46a6619cf2a9f79100bedb0675b1c03d8012bd00272247d96db951ca58df1a&)
 
 im friendly i think ... w2i when im busy or away.. i sincerely apologize if i dont respond to ur whisper.. i dont mean toooooo....
 
