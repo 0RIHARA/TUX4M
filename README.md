@@ -1,6 +1,6 @@
 # woah
 
-im friendly i think ... w2i when im busy or away.. i sincerely apologize if i dont respond to ur whisper.. i dont mean toooooo....
+im rlly friendly dont be afraid to int... w2i when im busy or away.. i sincerely apologize if i dont respond to ur whisper.. i dont mean toooooo....
 
 [PONY TOWN INFO HERE](https://rentry.co/sillyhorsiegame) . still wip ... im pathetic
 
