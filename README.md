@@ -17,6 +17,6 @@ maeno aki
 
 
 ***
-i miss them so had im going crazy... im in need of more zeno content i cant do this
+i miss them so bad im going crazy... im in need of more zeno content i cant do this
 
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRTnb7mreCTfMqXJXemaF_oHkiMmLBjVQUHOg&usqp=CAU)
