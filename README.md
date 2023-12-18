@@ -4,7 +4,7 @@ im rlly friendly dont be afraid to int... w2i when im busy or away.. i sincerely
 
 [PONY TOWN INFO HERE](https://rentry.co/sillyhorsiegame) . still wip ... SRRY IM A HUGE PROCRASTINATER..  ;-; theres a lot of info abt me here sorry i like talking abt myself LOL
 
-**lovely people** - Kiyo, Joons/Flowa, Pyxle, Yoosu/Ardawyn, Ana, Whisp, Moon, Hina, Van, Miyo, Vas, Fei
+**lovely people** - Kiyo, Joons/Flowa, Pyxle, Yoosu/Ardawyn, Ana, Whisp, [Moon](https://www.patreon.com/cryingmoon), Hina, Van, [Miyo](https://github.com/bivalensong), [Vas](https://github.com/iorimotohashi), [Fei](https://github.com/antimonies)
 
 `^^ anyone not here r still very much appreciated <3`
 
