@@ -8,8 +8,6 @@ im rlly friendly dont be afraid to int... w2i when im busy or away.. i sincerely
 
 `^^ anyone not here r still very much appreciated <3`
 
-vas n fei u scare me srry u 2 r so cool
-
 ***
 maeno aki
 
